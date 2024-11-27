@@ -1,1 +1,1 @@
-# python_-al-malar-m
+# python_calismalarim
